@@ -13,7 +13,9 @@ MANUAL TECNICO
 
 https://drive.google.com/file/d/1vBvadXfQb_bDxxCB_CfWCl0ZO50tg1H8/view
 
+MANUAL DE USUARIO
 
+https://drive.google.com/file/d/11zmXmFjpvdJ2aPA2GF1jJ8SY3JDNZG-W/view
 
 
 
